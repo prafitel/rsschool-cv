@@ -1,1 +1,1 @@
-# rsschool-cv
+https://prafitel.github.io/rsschool-cv/cv
